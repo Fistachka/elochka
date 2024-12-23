@@ -37,7 +37,9 @@ Hа праздник к нам пришла
 И много, много радости
 Детишкам принесла!
 
-![](https://github.com/stolbitsa/malenkoy-elochke/assets/149964365/8186c72b-ca97-48e6-891e-595e0f04670d)
+<iframe width="315" height="560" src="https://www.youtube.com/embed/xXMx6ykfN0A" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+
+![pexels-rockdrigo68-10424950](https://github.com/user-attachments/assets/b1818f0a-f2f2-4231-aa3a-eb7bbdb70a01)
 <br><br>
 <span id="en"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
@@ -75,6 +77,9 @@ Video by https://bigpapamedia.ru/
  With lights and garlands bright,
  While all the children dance and sing
  To greet it with delight! (2 times)
+<iframe width="315" height="560" src="https://www.youtube.com/embed/Mz9uz0_K1aQ" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
-![](https://github.com/stolbitsa/malenkoy-elochke/assets/149964365/8186c72b-ca97-48e6-891e-595e0f04670d)
+
+![pexels-rockdrigo68-10424950](https://github.com/user-attachments/assets/b1818f0a-f2f2-4231-aa3a-eb7bbdb70a01)
+
 <br><br>
